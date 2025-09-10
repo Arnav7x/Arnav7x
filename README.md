@@ -1,4 +1,4 @@
-**`20, 妄想的な engineer.`**
+**`20, novice engineer. Self-proclaimed polymath.`**
 
 ![Ichigo Kurosaki](https://media.giphy.com/media/JLYQnbND9gkYU/giphy.gif)
 
