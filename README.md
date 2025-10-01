@@ -7,6 +7,6 @@ Sometimes they teach me something better. Either way, I keep going.
 
 Interested in the convergence of:
 - **CS**
-- **Finance**
 - **AI**
-- **ML**.
+- **ML**
+- **Finance**
