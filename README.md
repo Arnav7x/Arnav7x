@@ -6,7 +6,7 @@ I build things. Sometimes they work.
 Sometimes they teach me something better. Either way, I keep going.
 
 Interested in the convergence of:
-- **CS**
-- **AI**
-- **ML**
+- **Computer Science**
+- **Artificial Intelligence**
+- **Machine Learning**
 - **Finance**
