@@ -1,4 +1,4 @@
-**`20, CS nerd. Filmmaker. Polymath in the making.`**
+**`20, cs major/ filmmaker`**
 
 ![Goku](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExend2OWo3YXFwcWdla2Fjdm92eTR1c3Y0aWcxOGhobzVzNng0YXRybyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/DzeKll1HYxiYo/giphy.gif)
 
