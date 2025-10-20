@@ -1,7 +1,9 @@
 **`20, cs major/ filmmaker`**
 
-![Goku](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExend2OWo3YXFwcWdla2Fjdm92eTR1c3Y0aWcxOGhobzVzNng0YXRybyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/DzeKll1HYxiYo/giphy.gif)
+![Mugetsu](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeTJnMmN6cTAxeTk2dzA5dm1jNzVwYzh0M3k3Y2hjZHZnNG5zbjI4eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JLYQnbND9gkYU/giphy.gif)
 
-I build things. Sometimes they work. 
+I build things. 
 
-Sometimes they teach me something better. Either way, I keep going.
+Sometimes they work. Sometimes they teach me something better. 
+
+Either way, I keep going.
