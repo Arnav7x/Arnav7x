@@ -1,6 +1,6 @@
 **`20, cs major / filmmaker`**
 
-![Mugetsu](https://tenor.com/pFDVRwCKFiW.gif)
+![Toji](https://tenor.com/pFDVRwCKFiW.gif)
 
 I build things. 
 
