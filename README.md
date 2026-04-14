@@ -4,6 +4,6 @@
 
 I build things. 
 
-Sometimes they work. Sometimes they teach me something better. 
+Sometimes they work. Sometimes they teach me something better. Either way, I keep going.
 
-Either way, I keep going.
+Currently buidling **@Synapse** - a real-time code collaboration platform with an AI assistant.
