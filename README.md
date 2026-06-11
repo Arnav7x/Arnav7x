@@ -1,4 +1,4 @@
-**`21, I like to build, train, and film.`**
+**`21, I build stuff.`**
 
 ![Toji](https://c.tenor.com/tKDXocT647wAAAAd/tenor.gif)
 
