@@ -2,4 +2,6 @@
 
 ![Toji](https://c.tenor.com/tKDXocT647wAAAAd/tenor.gif)
 
-build and break. ascend. >)
+build. break. ascend.
+
+🃜 🃚 🃖 🃁 🂭 🂺 🀢
