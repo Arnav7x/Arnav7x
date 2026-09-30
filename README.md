@@ -1,6 +1,6 @@
 **`21, I build stuff.`**
 
-![Toji](https://c.tenor.com/tKDXocT647wAAAAd/tenor.gif)
+![Computer](https://media1.tenor.com/m/JXxXpNIb-CIAAAAd/wires-computer.gif)
 
 build. break. ascend.
 
