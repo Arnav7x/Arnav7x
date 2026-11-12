@@ -4,4 +4,4 @@
 
 build. break. ascend.
 
-🃜 🃚 🃖 🃁 🂭 🂺
+忍耐力
